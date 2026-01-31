@@ -1,1 +1,1 @@
-# octes-gpt-privacy-policy
+# OCTES.AI-privacy-policy
